@@ -36,101 +36,407 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
+1. TO THE RIGHT HONORABLE, AND MOST NOBLE, EDVVARD SOMERSET, Earle of Worcester, Baron Herbert of Ragland, Lord Chepstowe, Strigull, and Gower, Lord Priuie Seale, Knight of the most Noble Order of the Garter, and one of his Maiesties Priuie Councell.
+
+1. TO THE READER.
+
+1. AN INDEX, OR TABLE, of Nine Bookes of Various Historie, onely concerning Women, inscribed by the Names of the Nine MVSES.
+The Contents of the first Booke, intituled Clio: Treating of the Goddesses Celestiall, Terrestriall,The Contents of the second Booke, inscribed Euterpe: Treating of the Muses, Sybils, Vestals, ProphetThe Contents of the third Booke, inscribed Thalia: Treating of Illustrious Queenes, famous Wiues, MoThe Contents of the fourth Booke, inscribed Melpomene: Of Women Incestuous, Adulteresses, and such aThe Contents of the fift Booke, inscribed Terpsichore: Entreating of Amazons, and other women, famouThe Contents of the sixt Booke, inscribed Erato: Treating of Chast women, and Wantons.A Discourse coThe Contents of the seuenth Booke, inscribed Polihymnia, or Memorie: Entreating of the Pietie of DauThe Contents of the eight Booke, inscribed Vrania: Entreating of Women euery way Learned: Of PoetresThe Contents of the ninth Booke, inscribed Calliope: Entreating of Women in generall, with the Punis
 #####Body#####
 
-1. Of the Goddesses, Coelestiall: and first of IVNO.
+1. NINE BOOKES OF VARIOVS HISTORIE, ONELIE concerning Women: Inscribed by the names of the nine Muses.
 
-1. Of the Goddesses called Selectae.
+    _ The first booke which is CLIO, treating of the Goddesses Coelestiall, Terrestriall, Marine, and Infernall.
 
-1. Of the Marine Goddesses.
+      * Of the Goddesses, Coelestiall: and first of IVNO.
 
-1. The Goddesses of the Hills, Woods, Groues, and Trees.
+CYBELE.
 
-1. Of the Goddesses Infernall.
+VENVS.
 
-1. Of the Muses, the Sybells, the Vestalls, the Prophetesses, the Hesperides, the Graces, &c.
+MINERVA.
 
-1. Of the SYBELLS.
+DIANA.
 
-1. Of the Virgins VESTALLS.
+CERES.
 
-1. Of the Prophetesses.
+PROSERPINA.
 
-1. The HESPERIDES.
+NEMESIS.
 
-1. Of the GRACES.
+LATONA.
 
-1. Of Queenes Illustrious.
+FORTVNA.
 
-1. Of diuers Ladies famous for their Modestie.
+      * Of the Goddesses called Selectae.
 
-1. The wife of FVLVIVS.
+      * Of the Marine Goddesses.
 
-1. Examples of Modestie and Magnanimitie.
+AMPHITRITE.
 
-1. Of Queenes and other Ladies for diuers vertues memorable.
+THETIS or TETHIES.
 
-1. Of Women remarkeable for their loue to their Husbands.
+NEREIDES.
 
-1. Of Women incestuous, and first of Q. Semiramis.
+The daughters of TRITON.
 
-1. Of Adulteresses.
+The wiues and daughters of PROTEVS.
 
-1. Of Women that haue come by strange Deaths.
+The daughters of PHORCIS.
 
-1. Of the Amazons.
+SCILLA and CHARIBDIS.
 
-1. Of warlike Women, and those of Masculine vertue.
+      * The Goddesses of the Hills, Woods, Groues, and Trees.
 
-1. Of other warlike Ladies.
+OREADES.
 
-1. Of English Viragoes. And of Ioan de Pucil.
+The Driades and Hamadriades.
 
-1. Of Faire Women.
+      * Of the Goddesses Infernall.
 
-1. Of Faire Women.
+Of the Parcae.
 
-1. Of Women Deformed.
+FVRIAE or the EVMEMIDES.
 
-1. Of MARY, the Blessed Virgin.
+    _ THE SECOND BOOKE inscribed EVTERPE.
 
-1. Of Chast Wiues.
+      * Of the Muses, the Sybells, the Vestalls, the Prophetesses, the Hesperides, the Graces, &c.
 
-1. Of Women Wantons.
+CLIO.
 
-1. Of Famous Wantons.
+EVTERPE.
 
-1. Of Pious Daughters.
+THALIA.
 
-1. Of Matrimonie, and Coniugall Loue.
+MELPOMENE.
 
-1. De Laenis, or of Bawdes.
+TERPSICHORE.
 
-1. De Gulosis & Vinolentis, i. Of Women addicted to Gluttonie, and Drunkenesse.
+ERATO.
 
-1. Of Women excellent in the Art of Painting, Weauing, &c.
+POLYMNIA.
 
-1. Of Women Contentious, and Bloodie.
+De VRANIA.
 
-1. Of Clamorous Women commonly called Skoulds.
+CALLIOPE.
 
-1. Varietie of Discourse concerning Women.
+      * Of the SYBELLS.
 
-1. Of Women Orators, that haue pleaded their owne Causes, or others.
+SIBILLA PERSICA.
 
-1. Of Women studious in Diuinitie.
+SYBILLA LIBICA.
 
-1. Of Women excellent in Philosophie, and other Learning.
+SYBILLA DELPHICA.
 
-1. Of Poetrie.
+SIBILLA CVMAEA.
 
-1. Poetriae, or Women Poets.
+SIBILLA SAMIA.
 
-1. Of Witches.
+SYBILLA CVMANA.
 
-1. Of Women Rauished, &c.
+SIBILLA HELLESPONTICA.
 
-1. Of Women for their Pietie and Deuotion remembred in the sacred Scriptures.
+SYBILLA PHRIGIA.
+
+SIBILLA EVROPAEA.
+
+SIBILLA TIBVRLINA.
+
+SIBILLA AEGYPTIA.
+
+SIBILLA ERYTHRAEA.
+
+      * Of the Virgins VESTALLS.
+
+OPPIA.
+
+      * Of the Prophetesses.
+
+      * The HESPERIDES.
+
+PLEIADES, or HYADES.
+
+      * Of the GRACES.
+
+HORAE, or the Houres.
+
+AVRORA, or the Morning.
+
+NOX, or, the Night.
+
+    _ THE THIRD BOOKE of Women, inscribed THALIA. Treating of Illustrious Queenes, Famous Wiues, Mothers, Daughters, &c. Containing the Histories of sundry Noble Ladies.
+
+      * Of Queenes Illustrious.
+
+      * Of diuers Ladies famous for their Modestie.
+
+      * The wife of FVLVIVS.
+
+Aretaphila.
+
+The wife of Nausimines.
+
+Cyane and Medullina.
+
+Erixo.
+
+A Woman of the cittie Pergamus.
+
+Stratonica.
+
+Valeria and Cloelia.
+
+Olympias.
+
+Troades.
+
+The Phocides.
+
+The Women of Chios.
+
+Persides.
+
+Celtae.
+
+Melitae.
+
+Tyrrhenae.
+
+      * Examples of Modestie and Magnanimitie.
+
+Of Dido, Cesara, Gumilda, and Ethelburga.
+
+Polycrita.
+
+      * Of Queenes and other Ladies for diuers vertues memorable.
+
+      * Of Women remarkeable for their loue to their Husbands.
+
+    _ THE FOVRTH BOOKE inscribed MELPOMENE. Of Women incestuous, of Adulteresses, and such as haue come by strange deaths.
+
+      * Of Women incestuous, and first of Q. Semiramis.
+
+Pasiphae.
+
+Canace, Canusia, Valeria Tusculana.
+
+Iulia, the Empresse.
+
+The sisters of Cambises.
+
+Of Lyuia Horestilla, Lollia Paulina, Cesonia, &c.
+
+Iocasta.
+
+Crithaeis.
+
+Cyborea, the mother of Iudas Iscariot.
+
+      * Of Adulteresses.
+
+Of many great Ladies branded with Adultery amongst the Romans: and first of Posthumia.
+
+An Egyptian Lady.
+
+Laodice.
+
+Phaedima.
+
+Begum, Queene of Persia.
+
+Olimpias.
+
+Romilda.
+
+A Moderne History of an Adulteresse.
+
+Elfritha.
+
+Gunnora.
+
+      * Of Women that haue come by strange Deaths.
+
+Of the Mistresse of Brennus. Of Tarpeia, and Acco a Roman Matron.
+
+Of such as haue died in child-byrth.
+
+Of Women that suffered Martyrdome.
+
+Aristoclaea.
+
+    _ THE FIFTH BOOKE inscribed TERPSICHORE. Intreating of Amazons: and other Women famous either for Valour, or for Beautie.
+
+      * Of the Amazons.
+
+      * Of warlike Women, and those of Masculine vertue.
+
+Camilla and others.
+
+      * Of other warlike Ladies.
+
+Zantippe and Mirho.
+
+      * Of English Viragoes. And of Ioan de Pucil.
+
+      * Of Faire Women.
+
+      * Of Faire Women.
+
+The faire Mistresse of Pisistratus.
+
+Nitetis.
+
+Bersane.
+
+The wife of Candaules.
+
+Rowan and Estrilda.
+
+The Faire ladie of Norwich.
+
+Of Callirhoe, daughter to Boetius.
+
+The Wiues of Cabbas and of Phaillus.
+
+Manto.
+
+The wife of Agetus the Lacedemonian.
+
+      * Of Women Deformed.
+
+    _ THE SIXT BOOKE, Inscribed ERATO: Treating of Chast Women, and of Women Wantons.
+
+      * Of MARY, the Blessed Virgin.
+
+Petronilla.
+
+      * Of Chast Wiues.
+
+Of Penelope.
+
+      * Of Women Wantons.
+
+Lais.
+
+Phrine.
+
+Glicerin or Glicera, and others.
+
+Agathoclaea.
+
+Cleophis.
+
+Callipygae.
+
+Alogunes, Cosmartidenes, Andia.
+
+Iulia.
+
+Harlotta, or Arlotta.
+
+Of diuerse Wantons belonging to sundry famous men, and others.
+
+      * Of Famous Wantons.
+
+Of Mista, and others.
+
+    _ THE SEVENTH BOOKE, Inscribed POLYHIMNIA, or MEMORIE. Intreating of the Pietie of Daughters towards their Parents, Women to their Children, Sisters to their Brothers, Wiues to their Husbands, &c.
+
+      * Of Pious Daughters.
+
+Of Sisters that haue beene kind to their Brothers.
+
+      * Of Matrimonie, and Coniugall Loue.
+
+Of Contracts before marriage, and of Dowries, amongst whom they were allowed, and by whom forbidden.
+
+Of Nuptiall Ornaments, Pompe, Feasts, Epithalamions, &c.
+
+Sacred Auguries and Nuptiall Expiations, &c.
+
+The Coniugall Loue of Women towards their Husbands.
+
+      * De Laenis, or of Bawdes.
+
+      * De Gulosis & Vinolentis, i. Of Women addicted to Gluttonie, and Drunkenesse.
+
+Of Women beloued of diuerse Creatures.
+
+      * Of Women excellent in the Art of Painting, Weauing, &c.
+
+      * Of Women Contentious, and Bloodie.
+
+Of Women strangely preserued from death, and such as haue vnwillingly beene the death of their Fathers.
+
+      * Of Clamorous Women commonly called Skoulds.
+
+      * Varietie of Discourse concerning Women.
+
+    _ THE EIGHTH BOOKE, Inscribed VRANIA: Intreating of Women euerie way Learned; of Poetresses, and Witches, &c.
+
+      * Of Women Orators, that haue pleaded their owne Causes, or others.
+
+      * Of Women studious in Diuinitie.
+
+      * Of Women excellent in Philosophie, and other Learning.
+
+      * Of Poetrie.
+
+      * Poetriae, or Women Poets.
+
+Of Minerua, &c.
+
+Sapho.
+
+Of Cleobule Lindia, and other Poetesses.
+
+Telesilla Poetria.
+
+      * Of Witches.
+
+Of Cyrce, and others remembred by the Poets.
+
+Of Witches transported from one place to another by the Deuill.
+
+Of Witches that haue eyther changed their owne shapes, or transformed others.
+
+Of Witches that haue confest themselues to haue raised tempests in a most serene Skie, with other things of no lesse admiration.
+
+    _ THE NINTH BOOKE, Inscribed CALLIOPE: Intreating of Women in generall, with the Punishments appertaining to the Vitious, and Rewards due to the Vertuous.
+
+      * Of Women Rauished, &c.
+
+Of Handmaids, Nurses, Midwiues, and Stepdames.
+
+      * Of Women for their Pietie and Deuotion remembred in the sacred Scriptures.
+
+The sister of Leucippus,
+
+Of Adulterie.
+
+Sisters that haue murdred their Brothers.
+
+Of Mothers that haue slaine their Children, or Wiues their Husbands, &c.
+
+Of Loquacitie and Excesse, and how they haue beene punished.
+
+Of seuerall degrees of Inchastities, and of their Punishments.
+
+Of Witches and the Punishment due to them.
+
+Of Tirgatao Moeotis, Camiola Turinga, and others.
+
+The reward due to Fertilitie, or many Children, with such as haue restored their decayed Families.
+
+Of Beautie and the reward thereof.
+
+Of Bountie, Charitie, Pietie, and other Vertues in Women, with their Rewards.
+
+Loosenesse of life first conuerted, and the conuersion rewarded, in a home-bred Historie.
+
+Cura.
+
+Rewards due to Philosophers, Orators, and poets.
 
 **Types of content**
 
